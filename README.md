@@ -1,1 +1,0 @@
-# renova_carrelage
